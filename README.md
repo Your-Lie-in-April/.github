@@ -1,6 +1,0 @@
-![image](https://github.com/Your-Lie-in-April/.github/assets/121238128/c1c55520-0435-4e90-854f-b0134ebc19c7)
-![image](https://github.com/Your-Lie-in-April/.github/assets/121238128/637d8c31-b614-4afe-92d2-82b80f400f4a)
-![image](https://github.com/Your-Lie-in-April/.github/assets/121238128/e463f7eb-61b7-49bd-83e6-2cd20e47d1e6)
-![image](https://github.com/Your-Lie-in-April/.github/assets/121238128/d13ce2e7-ca94-4395-8d1c-af2fd2f66078)
-![image](https://github.com/Your-Lie-in-April/.github/assets/121238128/23355563-6ed6-4342-8173-fb53dd7711b4)
-![image](https://github.com/Your-Lie-in-April/.github/assets/121238128/7c5bd34b-2af2-4752-8b16-6bae4b1d951c)
